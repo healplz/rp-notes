@@ -10,5 +10,6 @@
 * [Hamstrings](https://renaissanceperiodization.com/hamstring-training-tips-hyprtrophy/)
 * [Calves](https://renaissanceperiodization.com/calves-training-tips-hypertrophy/)
 * [Back](https://renaissanceperiodization.com/back-training-tips-hypertrophy/)
+* [Traps](https://renaissanceperiodization.com/trap-training-tips-hypertrophy/)
 * [Abs](https://renaissanceperiodization.com/ab-training/)
 * [Glutes](https://renaissanceperiodization.com/glute-training-tips-hypertrophy/)
